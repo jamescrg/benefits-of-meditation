@@ -1,0 +1,18 @@
+- Reduced Reactivity
+  - One of the first benefits that people notice
+  - Shows up in a variety of ways
+  - Better anger management
+  - Less irritability
+  - Better able to delay speaking or acting and to choose one’s words or actions deliberately
+  - Needless to say, this single benefit is very valuable
+- Social Relationships
+- Reduced Risk of Accidents
+- Stress Reduction
+- Nonattachment
+- Time Management
+  - Meditation teaches us to prioritize. But not to fill ourselves up with the more important things. Merely to empty ourselves of the less important things.
+- Concentration and Learning
+- Simple Enjoyment, the Joy of the Mundane
+- Confidence
+  - The confidence that arises from samatha, the ability to establish samadhi
+
