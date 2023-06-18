@@ -1,7 +1,7 @@
 
 ## Introduction: A Quick Primer on Meditation
 
-There are many benefits to the practice of meditation. These include reduced reactivity, better social relationships, a reduced risk of accidents, reduced stress, better time management, better concentration and learning, a greater enjoyment of life, and improved confidence. In this book, I discuss each of these benefits at some length. I talk about how meditation brings them about and how much time and effort are needed to start experiencing them. The bottom line is, for most people, meditation is a very worthwhile endeavor. It is one of the best things a person can do for their wellness and general happiness.
+There are many benefits to the practice of meditation. These include reduced reactivity, better social relationships, and a greater enjoyment of life, among others. In this book, I discuss these and other benefits at some length. I talk about how meditation brings such benefits about and how much time and effort are needed to start experiencing them. The bottom line is, for most people, meditation is a very worthwhile endeavor. It is one of the best things a person can do for their well-being and general happiness.
 
 
 ### What is meditation?
@@ -60,7 +60,9 @@ You can meditate anywhere you can find a quiet place, but you don’t need total
 
 I am going to be making a lot of claims about the benefits of meditation. For convenience, and to avoid writing about myself the whole the time, I will be using the second person pronoun "you". I will make statements like: "you" will experience this, and "you" will experience that. But the reality is that your mileage may vary. "You" are a unique individual, who may not experience meditation the way I have.
 
-But I have been meditating for a lot of years, and I know many other people who have also done a quite a bit of meditation. Everyone I know who has stuck with their practice has experienced similar benefits. So the results are not guaranteed, but they are at least reasonably probable.
+But I have been meditating for a lot of years, and I know many other people who have also done a quite a bit of meditation. Everyone I know who has stuck with their practice has experienced similar benefits. So the results are not guaranteed, but they are at least somewhat probable, assuming that you stick with the practice for long enough.
+
+Some people notice the benefits right away. Some people have to work at it for awhile. Nearly everybody agrees that they tend to come and go for awhile, but they tend to get stronger over time.
 
 
 ## The Benefits
