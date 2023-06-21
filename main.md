@@ -78,11 +78,33 @@ Have you ever acted all of a sudden without even realizing it, almost like a ref
 
 The important point here is that meditation will make you more in control of your own behavior. You'll be less snappy, less likely to talk back without thinking, more deliberate in choosing your words and actions. This benefit alone can be life changing.
 
-I call this the "first" benefit that people notice, because it's usually just that, the first thing you notice. You do your daily meditation for a few minutes a day. You may or may not find it all that relaxing. But then one day you notice that you have a bit more self control. And it feels really amazing. You are more like the person you want to be. You are no longer getting jerked around by life quite as much. You are less at the mercy of external factors.
+This is usually the first benefit you notice from a meditation practice. It happens like this. You do your daily meditation for a few minutes a day. You may or may not find it all that relaxing. But then one day you notice that you have a bit more self control. You are more like the person you want to be. You are no longer getting pulled around by life quite as much. You are less at the mercy of external factors.
 
-You have more self control. Only it's not control like a commander ordering his troops around on a field. It's not oppressive or constraining. Quiet the opposite, in fact. It is liberating. You are more in control, because the part of you that is really "you" is making the decisions. And the "control" you experience does not come from suppressing your reactions. It comes from seeing them in a new light.
+You have more self control. Only it's not an oppressive kind of control. It doesn't feel constraining. Quiet the opposite, in fact. It is liberating. You are more in control, because the part of you that is really "you" is making the decisions. And the "control" you experience does not come from suppressing your reactions. It comes from seeing them in a new light. As a result of this "seeing", you have become less reactive.
 
-Now we come to the point that is kind of hard to explain. You stop reacting, because you see your reactions differently. Let's look at that more closely. Let me write it again. You stop reacting, because you see your reactions differently.
+
+### Better Social Relationships
+
+The next benefit that people tend to notice is that they start to have greater harmony in their social relationships. They have fewer quarrels with their loved ones. They find that social interactions are just easier and more comfortable.
+
+This is obviously due in part to the reduced reactivity, described above. I am sure this relationship is fairly obvious. You are less likely to be snappy and irritable, so you get along better with others. It's pretty straightforward.
+
+However, there is more to meditation than just reduced reactivity. There is also a kind of self-exploration, or introspection, involved. The result is that we have more empathy for others.
+
+I want to be careful here to make sure that I am clear that in using the term "empathy" I do not just mean compassion or kindness. I mean specifically the term "empathy", which means the ability to recognize and be aware of the feelings, thoughts, and experiences of other people.
+
+This is a significant advantage in your dealings with others. Even if you are mainly self-interested and focused on improving your own life, you still need to cultivate empathy. You still need to understand people in order to navigate your relationships with them and interact with them successfully. At minimum, you need to know what buttons to push to get the behaviors you want. Empathy is how you figure that out.
+
+Another advantage of cultivating empathy is that it makes other people much easier to tolerate. When you understand people, it is easier to be patient with their behavior. You are less likely to take things personally. This makes the companionship of others much more enjoyable. And since we are all generally social animals, and need the companionship of others, having greater empathy makes life more enjoyable overall.
+
+Having the ability to understand what is causing the behavior will also provide valuable clues about how to get it to stop.
+
+Most of us are not completely self interested, though. We care about others; we have meaningful personal relationships; and we generally want to get on well with other people. Empathy helps us to cultivate deeper, healthier bonds with our family and have more rewarding relationships with our friends.
+
+
+## How it Works
+
+So how does this work? Now we come to the point that is kind of hard to explain. You stop reacting, because you see your reactions differently. Let's look at that more closely. Let me write it again. You stop reacting, because you see your reactions differently.
 
 That's kind of a contradiction. In order to see a reaction differently, don't you have to have that reaction? Well, yes, you still have the reaction inside of yourself, but you are less likely to act on it. You experience it differently as it arises, almost like it is happening in slow motion.
 
@@ -100,27 +122,4 @@ And think about this on a social level. Imagine how our culture would change if,
 
 This one benefit alone is worth the price of admission. But there are other benefits to meditation that are equally if not more profound.
 
-
-### Better Social Relationships
-
-To be fair, some of the benefits I am going to discuss are closely related to, or even derivative from, reduced reactivity. This includes one of my favorite benefits: better social relationships.
-
-I am sure you can see right away how reduced reactivity results in better social relationships. You are less likely to be snappy and irritable, so you get along better with others. It's not complicated.
-
-Nevertheless, social relationships are so important to mental health and happiness that I felt that this particular category deserved to be given some special discussion.
-
-In addition, there is an effect of meditation that seems to be quite distinct (although not entirely unrelated to) reduced reactivity. And that effect is enhanced empathy.
-
-Meditation helps us to have better empathy for others.
-
-I want to be careful here to make sure that I am clear that I do not just mean compassion in the sense of kindness or gentleness or a propensity for mercy and conciliation. I mean specifically the term "empathy", which means the ability to recognize and be aware of the feelings, thoughts, and experiences of other people.
-
-This is a huge benefit for the other people around you, who have to live with you. But it is also a huge benefit for you. Even if you are entirely self-interested and focused on improving your own life, you still need to cultivate the capacity for empathy. You still need to have the ability to understand people in order to navigate your relationships with them and interact with them effectively. At minimum, you need to know what buttons to push to get the behaviors you want. Empathy is how you figure that out.
-
-Another benefit of empathy is that it makes other people much easier to tolerate. When someone is being obnoxious and you can't understand why, it is very difficult to tolerate that obnoxious behavior. But when someone is being obnoxious and you have an understanding as to why they're doing it, then it makes it a little easier to accept the situation. You will feel less like a victim. You will recognize the suffering that is giving rise to the obnoxious behavior, and you will realize that the person at issue is probably hurting themselves more than they are hurting you. Having the ability to understand what is causing the behavior will also provide valuable clues about how to get it to stop.
-
-Most of us are not completely self interested, though. We care about others, have meaningful personal relationships, and generally want to get on well with other people. Empathy helps us to cultivate deeper, healthier bonds with our family and have more rewarding friendships.
-
 So how does meditation give rise to empathy? Well, as mentioned above, meditation involves a lot of looking within, a lot of introspection. This means that you spend a lot of time examining your own thoughts, impulses, and emotions. You get much better acquainted with who and what you are.
-
-
